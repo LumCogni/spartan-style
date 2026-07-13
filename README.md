@@ -1,3 +1,5 @@
+![Spartan Style: Civilized delivery. Savagely short.](spartan-style-banner.jpg)
+
 # Spartan Style
 
 **Civilized delivery. Savagely short.**
